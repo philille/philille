@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @philille
 - 👀 I’m interested in codding and football
-- 🌱 I’m currently learning Computer Engineering 
+- 🌱 I’m currently learning Computer Engineering @NortheasternUniversity
 - 📫 I can be reached via wanxzhan@gmail.com
 - 🌎 I can speak 中文🇨🇳 English🇬🇧 and Français🇫🇷
 - 😁
